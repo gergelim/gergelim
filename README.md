@@ -9,5 +9,3 @@ Furthermore, Gergelim also enjoys watching birds in his free time*. Cool people 
 Haters will say that all of Gergelim's repositories are agentic. These are not false claims.
 
 - Gergelim is his given name because someone took the Alpiste.
-
-![snake gif](https://github.com/gergelim/gergelim/blob/output/github-contribution-grid-snake.svg)
