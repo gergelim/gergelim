@@ -1,4 +1,4 @@
-## Hello! This is Gergelim's Playgroung ##
+## Hello! This is Gergelim's Playground ##
 
 This is where Gergelim cooks good grub. It's grub because he doesn't code, he cooks.
 
