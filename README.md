@@ -9,3 +9,5 @@ Furthermore, Gergelim also enjoys watching birds in his free time. Cool people c
 Haters will say that all of Gergelim's repositories are agentic. These are not false claims.
 
 - Gergelim is his given name because someone took the Alpiste.
+
+- Andre tries to be very tuff and very toff. He just forgot he is neither, especially the second (money has been quite a problem, and his british accent is quite a ways off) 
