@@ -11,3 +11,8 @@ Haters will say that all of Gergelim's repositories are agentic. These are not f
 - Gergelim is his given name because someone took the Alpiste.
 
 - Andre tries to be very tuff and very toff. He just forgot he is neither, especially the second (money has been quite a problem, and his british accent is quite a ways off) 
+
+3 of Gergelim's greatest speeches:
+- "Give your hops kind" (Dá seus pulos tipo)
+- RESERVED
+- RESERVED
